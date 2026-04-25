@@ -13,7 +13,7 @@
 수집한 정보를 제3자에게 판매하거나 공유하지 않습니다.
 
 ## 문의
-lee.hakjoon@gmail.com
+onelittlestepstudio@gmail.com
 
 ---
 
@@ -26,4 +26,4 @@ lee.hakjoon@gmail.com
 We do not sell or share any collected information with third parties.
 
 ## Contact
-lee.hakjoon@gmail.com
+onelittlestepstudio@gmail.com
